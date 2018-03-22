@@ -1,1 +1,0 @@
-# smallresounding.github.io
